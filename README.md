@@ -1,26 +1,35 @@
-<img src="https://64.media.tumblr.com/f74ce7d80c7ba61b63a6e32c6e57c271/c3d7338a09e87291-af/s2048x3072/74dfbf093e0d7a250908f8e2060b2672ce840347.pnj" align="center"/> 
+<p align=center>
+
+<p align=center>
+
+<img src="https://64.media.tumblr.com/d9e5d87151ce3d80dc9c8b2c6c4bf5ec/7da1972d6a2aa5ac-57/s540x810/5ef3901db66f955c7d06fd72c545320d923bd398.pnj" align="center"/> 
 
 <p align=center>
 
 <p align=center>
 
-<p align=center>
-         
-<img src="https://64.media.tumblr.com/02779bc8d151df2e233d689a1f0d330a/c3d7338a09e87291-6d/s1280x1920/867f0a2b0791822a61b66ece8be8a5309a08a6b6.pnj" width="190px" align="left"/> 
+<p align=center> 
 
 <div align=center>
 
 ᥡіᥒᥣᥱ ᥆ᥙ ⍴һᥲіᥒ᥆ᥒ ☀︎ һᥱ ? 𝗍һᥱᥡ
+
 ᑲіggᥱs𝗍 ⍴һᥲі kіᥒ sіᥒᥴᥱ ძ1
 
+────────────────────────────
+
 sіgᥒ ᥲ𝗍ᥲ & s𝗍rᥲᥕ ⍴ᥣs ! 
-mіᥒ᥆rs -16 іᥕᥱᥴ / ძᥒі ᥙᥒᥣᥱss
+⍴ᥣs gі𝖿𝗍 ⍴һᥲі skіᥒs gᥙᥡs ⍴ᥣs 
+
+<img src="https://64.media.tumblr.com/6883dcd3d8a1dcda88f6ec0e9f1896dc/7da1972d6a2aa5ac-6c/s540x810/266f8bff612373feccbfce920755b7c6266ec8b7.pnj" align="center"/> 
+
+<p align=center>
+         
+mіᥒ᥆rs -16 іᥕᥱᥴ / ძᥒі ᥙᥒᥣᥱss 
 
 ᥲᥣrᥱᥲძᥡ 𝖿rіᥱᥒძs , і𝖿 ᥙr ᥴһіᥣᥣ
 ᥙr ᥴ᥆᥆ᥣ ȷs ძ᥆ᥒ𝗍 ᑲᥱ ᥕᥱіrძ.
 
-⍴ᥣs gі𝖿𝗍 ⍴һᥲі skіᥒs gᥙᥡs ⍴ᥣs 
-
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-<img src="https://64.media.tumblr.com/bd1bc7197c331e40b5003cc16c80e886/c3d7338a09e87291-f8/s2048x3072/985565e3e0376084bd71cb332cd82edea779c8aa.pnj" align="center"/> 
+<img src="https://64.media.tumblr.com/ab97415d43433c5bbd30880ec91f66f6/7da1972d6a2aa5ac-0c/s540x810/47d9c844fd12ef0803f163b79f1d4de7b8fa8e8e.pnj" align="center"/> 
