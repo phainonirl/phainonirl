@@ -21,6 +21,9 @@
 sіgᥒ ᥲ𝗍ᥲ & s𝗍rᥲᥕ ⍴ᥣs ! 
 ⍴ᥣs gі𝖿𝗍 ⍴һᥲі skіᥒs gᥙᥡs ⍴ᥣs 
 
+sᥲ᥎іᥒg 𝖿᥆r ᥱ6s5 ⍴һᥲіᥒ᥆ᥒ 
+ᥲ𝖿𝗍ᥱr ᥴᥱrһᥡძrᥲ
+
 <img src="https://64.media.tumblr.com/6883dcd3d8a1dcda88f6ec0e9f1896dc/7da1972d6a2aa5ac-6c/s540x810/266f8bff612373feccbfce920755b7c6266ec8b7.pnj" align="center"/> 
 
 <p align=center>
