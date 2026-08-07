@@ -18,19 +18,24 @@
 
 ────────────────────────────
 
+mіᥒ᥆rs -16 іᥕᥱᥴ / ძᥒі ᥙᥒᥣᥱss 
+
+ᥲᥣrᥱᥲძᥡ 𝖿rіᥱᥒძs , і𝖿 ᥙr ᥴһіᥣᥣ
+ᥙr ᥴ᥆᥆ᥣ ȷs ძ᥆ᥒ𝗍 ᑲᥱ ᥕᥱіrძ.
+
+<img src="https://64.media.tumblr.com/6883dcd3d8a1dcda88f6ec0e9f1896dc/7da1972d6a2aa5ac-6c/s540x810/266f8bff612373feccbfce920755b7c6266ec8b7.pnj" align="center"/> 
+
 sіgᥒ ᥲ𝗍ᥲ & s𝗍rᥲᥕ ⍴ᥣs ! 
 ⍴ᥣs gі𝖿𝗍 ⍴һᥲі skіᥒs gᥙᥡs ⍴ᥣs 
 
 sᥲ᥎іᥒg 𝖿᥆r ᥱ6s5 ⍴һᥲіᥒ᥆ᥒ 
 
-<img src="https://64.media.tumblr.com/6883dcd3d8a1dcda88f6ec0e9f1896dc/7da1972d6a2aa5ac-6c/s540x810/266f8bff612373feccbfce920755b7c6266ec8b7.pnj" align="center"/> 
-
 <p align=center>
          
-mіᥒ᥆rs -16 іᥕᥱᥴ / ძᥒі ᥙᥒᥣᥱss 
+[⍴᥆ᥒᥡ𝗍᥆ᥕᥒ's ⍴һᥲіᥒ᥆ᥒ](https://github.com/pt-fashion) <3
 
-ᥲᥣrᥱᥲძᥡ 𝖿rіᥱᥒძs , і𝖿 ᥙr ᥴһіᥣᥣ
-ᥙr ᥴ᥆᥆ᥣ ȷs ძ᥆ᥒ𝗍 ᑲᥱ ᥕᥱіrძ.
+[ᑲᥱs𝗍 s𝗍ᥙ⍴іძ s𝗊ᥙᥲძ](https://github.com/pt-friendships) ᥕ/ ᥴᥲs , ᥴһ᥆ & ᥴһᥲᥣk
+
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
